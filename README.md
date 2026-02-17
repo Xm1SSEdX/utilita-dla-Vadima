@@ -1,1 +1,0 @@
-# utilita-dla-Vadima
